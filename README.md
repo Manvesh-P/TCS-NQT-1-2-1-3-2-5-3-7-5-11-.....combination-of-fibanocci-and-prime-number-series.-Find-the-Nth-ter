@@ -1,0 +1,1 @@
+# TCS-NQT-1-2-1-3-2-5-3-7-5-11-.....combination-of-fibanocci-and-prime-number-series.-Find-the-Nth-ter
